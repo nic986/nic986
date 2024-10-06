@@ -1,4 +1,4 @@
-** There is nothing like perfect, there's always better.**
+** There is no such thing as perfect, there is always something better..**
 - 
 - 👋 Hi, I’m Santosh
 - 🕸️ i wanna be like spiderman
